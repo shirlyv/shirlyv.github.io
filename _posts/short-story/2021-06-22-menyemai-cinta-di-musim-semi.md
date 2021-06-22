@@ -18,8 +18,8 @@ Lirih suaranya membuyarkan imajinasiku tentang banyaknya potongan kenangan kita 
 Kenangan yang kulihat begitu menyenangkan, nyatanya berbeda di matanya. Pada kenyataannya, warna putih dan merah jambu yang membingkai kenangan itu, tak terlihat olehnya. 
 Pahitnya, semua warna pastel menyenangkan ditelan hitam pekat dan berubah seutuhnya menjadi kenangan menyedihkan baginya… tentang aku.
 
-“Kau tahu ini juga sulit untukku, kan? Kalau saja bisa memilih, aku pasti akan menemukan jalan yang lain. Sayangnya, aku tidak bisa. Seandainya kau bisa memahamiku kali ini saja. Kumohon, Al. Kamu tahu perasaanku. Kamu yang paling tahu. 
-Alena… Maafkan aku.” Isaknya, kali ini. 
+>“Kau tahu ini juga sulit untukku, kan? Kalau saja bisa memilih, aku pasti akan menemukan jalan yang lain. Sayangnya, aku tidak bisa. Seandainya kau bisa memahamiku kali ini saja. Kumohon, Al. Kamu tahu perasaanku. Kamu yang paling tahu. 
+Alena… Maafkan aku.” 
 
 Aku diam lagi. 
 Tidak bersuara, tidak bergeming sedikitpun. Tapi jangan kau tanya berapa derasnya air mata yang turun menghujani wajahku. Aku tidak bisa membendungnya, bagiku, apapun yang pernah melintas di antara kita, aku selalu baik-baik saja. 
@@ -44,11 +44,14 @@ Kami berdua setidaknya masih memiiliki tujuan dan impian yang sama; membahagiaka
 Karena itulah, aku masih berada di sini sekarang. Meskipun ini hari terakhirku, tapi aku merasa sangat lega melihat puteri semata wayangku merasa bahagia. Aku menoleh pada Narendra, kulihat tatapan matanya yang tulus memandangi buah hati kita. 
 Diam-diam aku merasa beruntung kembali, lihatlah, ini memang pria yang sangat kucintai. Ia lelaki yang hebat, dan kini bahkan ketika berjuang tanpa sandaran, ia tetap menjadi ayah yang hebat.
 
-“Qiar sudah selesai sarapannya?” tanyanya, pada buah hati kita.
+>“Qiar sudah selesai sarapannya?” tanyanya, pada buah hati kita.
+
 Qiara mengangguk senang, “Qiara gak sabar buat makan malem, Papa!”, ujarnya. 
 Narendraku membelai kepalanya, aku menarik nafas panjang. Aku rindu bagaimana dulu, ia juga selalu membelaiku dengan cara yang sama. 
 
-“Memangnya kenapa sama makan malam?”, tanyanya. 
+>“Memangnya kenapa sama makan malam?”, tanyanya. 
+
+
 Raut wajah Qiara bertambah cerah seketika. Sambil melompat-lompat dan tertawa, ia berkata dengan pelafalan dan intonasi yang sangat jelas dan begitu mudah dipahami padahal dikatakan oleh seorang anak kecil berusia sembilan tahun. 
 Kalimatnya itu terlalu jelas sampai menusuk tepat pada jantungku.
 
@@ -61,15 +64,16 @@ Aku mendongak, kutegakkan kembali wajahku yang membeku. Air mata sudah tidak ber
 Akan kupastikan aku bisa memahaminya. Akan kupastikan, Qiara dan Narendra bahagia, bahkan bila itu berarti mereka harus baik-baik saja tanpa aku. 
 Aku...tidak mengapa.
 
-“Qiar, Papa tahu Qiar sangat bahagia dan Qiar seneng karena Miss Riri sekarang bukan cuma guru Qiar di sekolah, tapi jadi Mami juga di rumah. 
+>“Qiar, Papa tahu Qiar sangat bahagia dan Qiar seneng karena Miss Riri sekarang bukan cuma guru Qiar di sekolah, tapi jadi Mami juga di rumah. 
 Cuma aja, Papa minta Qiar jadi anak baik dan nurut sama Miss Riri nanti, ya. Um, maksud Papa nurut sama Mami. Qiar juga jangan lupa berdoa untuk Mama, ya. Puteri Papa, Papa percaya kamu akan tumbuh menjadi gadis kuat seperti Mama. Terimakasih sudah jadi puteri papa ya, Nak.” 
+
 Narendra berkata selembut mungkin, dari suaranya kulihat warna abu-abu menyelimuti
 Mata cokelat madunya berkaca-kaca.
 Kemudian, saat gadis kecil itu menubruk pelukannya, tangisannya pada akhirnya pecah kembali.
 
 Qiara melepas pelukan erat sepihaknya pada sang ayah. Jemarinya yang kecil mengusap air mata yang menghujani wajah teduh yang sangat ia kagumi itu. 
 
-“Papa, Qiara janji akan jadi anak baik buat Papa sama Mami. Qiara seneng karena sekarang Qiar punya Mami. 
+>“Papa, Qiara janji akan jadi anak baik buat Papa sama Mami. Qiara seneng karena sekarang Qiar punya Mami. 
 Miss Riri selalu jagain Qiara kalau Papa lagi kerja dan Miss Riri juga temenin Qiara kalo Qiar sakit, makanya Qiar seneng bisa panggil Miss Riri sama sebutan Mami sekarang. 
 Tapi Mami selalu kasih tau Qiara buat selalu doain Mama dan sayangin Mama. Jadi Papa jangan sedih lagi, ya. Qiara sayang Mami, Qiara sayang Papa dan Qiar sayang Mami.”
 Celotehnya, menenangkan.
@@ -80,7 +84,7 @@ Aku takjub sekaligus menyesal, seharusnya, aku bisa mendekapnya. Kulihat Rendra 
 > “Qiar memang kebanggaan Papa.” Ucapnya, serius.
 
 Ia lalu menurunkan Qiara dari gendongannya, 
-“Kalau gitu, Qiara tunggu di depan sama tamu-tamu, ya. Papa siap-siap sedikit lagi. Qiar temenin Papa ijab kabul, kan?” Tanyanya, pada sang puteri.
+>“Kalau gitu, Qiara tunggu di depan sama tamu-tamu, ya. Papa siap-siap sedikit lagi. Qiar temenin Papa ijab kabul, kan?” Tanyanya, pada sang puteri.
 Qiara mengangguk kemudian tersenyum senang lalu berlalu dan menghilang di balik pintu. Tersisalah kami berdua. Kini, Rendra kembali menatapku.
 
 > “Al, cintaku akan selalu sama. 
