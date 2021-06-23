@@ -392,7 +392,7 @@ Fai whispered,
 
 >“Because you're yummy.”
 
- PLAK!
+ **PLAK!**
 
 Moza slapped Fai's cheek.
 The cheek that used to get a kiss every day is now getting a slap for the first time.She was filled with emotion.
