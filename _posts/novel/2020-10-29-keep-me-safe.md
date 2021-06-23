@@ -538,8 +538,11 @@ Fai laid Moza down on the big brown sofa.  He sticks their bodies together with
 Fai's brown eyes met a pair of Moza's beautiful eyes, then the two of them sank into an exciting night.
 
 Fai sighed, he immediately brushed off the memory of Moza that his brain suddenly twisted.  He hurriedly washed his face, hoping that the shadow was gone.
-Fai looked at his reflection in the mirror, he scolded himself, “Stupid man.”  He said.
+Fai looked at his reflection in the mirror, he scolded himself, 
 
+> “Stupid man.”  
+
+He said.
 He was too embarrassed to see himself, from the beginning, he didn't have a plan to love her.  But why now that he kept hurting Moza, Moza stayed behind and still loved him.  It made his heart melt, but he couldn't.  
 This was all beyond his plans.  Before this love is too deep, he better let Moza go.
 
