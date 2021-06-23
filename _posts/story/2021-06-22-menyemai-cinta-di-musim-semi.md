@@ -1,6 +1,6 @@
 ---
 title: "Menyemai Cinta di Musim Semi"
-subtitle: "Abu-abu yang hinggap di pundakmu"
+subtitle: "abu-abu yang hinggap di pundakmu"
 layout: post
 author: "Linda Shierly"
 header-style: text
