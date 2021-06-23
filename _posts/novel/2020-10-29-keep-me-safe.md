@@ -169,11 +169,9 @@ Moza then melted in his arms until the end of her cry.
 *The time when you can still paint a smile after we had a great argument.*<br>
 *The sky's still I blue;*<br>
 *The sea is still deep;*<br>
-
 *Our steps are still the same,*<br>
-
 *unfortunately.. Now our goals are different.  ----*<br>
-*I want to go back .... but you still want to be separated. *<br>
+*I want to go back .... but you still want to be separated.*<br>
 
 Moza fantasized again.  
 But if it was true that she could come back, she would definitely take another option.
