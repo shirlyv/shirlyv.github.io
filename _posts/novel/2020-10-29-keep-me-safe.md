@@ -454,8 +454,8 @@ Wherever…. as long as it's not to Fai anymore.
 *And to have that happy ending, then I have to go.*<br>
 *Staying by your side only exhausts me, I just keep hurting myself.*<br>
 *So, I better left.*<br>
-*It may be darker and more dangerous outside, but inside here, I am suffering a lot.<br>
-*And seeing you gradually hate me, seeing your love slowly fade away, feels like suicide.<br>
+*It may be darker and more dangerous outside, but inside here, I am suffering a lot.*<br>
+*And seeing you gradually hate me, seeing your love slowly fade away, feels like suicide.*<br>
 
 *Then this is what I'm doing now.*<br>
 *I must take this step.*<br>
