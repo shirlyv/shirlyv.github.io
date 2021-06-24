@@ -24,7 +24,7 @@ tags:
 *I looked for you until I got lost,*<br>
 *I loooked for you until I almost dying*<br>
 *And i love you,*<br>
-*And got lost, and crazt, and died.*<br>
+*And got lost, and crazy, and died.*<br>
 
 *Where are you...*<br>
 *For everything i have done,*<br>
