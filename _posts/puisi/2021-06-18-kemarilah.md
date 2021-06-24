@@ -24,3 +24,5 @@ Segala sesak yang memercik<br>
 Aku, ingin damai.<br>
 
 Datanglah, peluk ke dalam pelikku<br>
+
+*Boeniaga, boelan 6, 2021*

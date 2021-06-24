@@ -21,3 +21,5 @@ Senyummu membayangi<br>
 Aku merindumu<br>
 Saat ini;<br>
 dan setiap hari.<br>
+
+*Poentjak, boelan 01, 2020*
