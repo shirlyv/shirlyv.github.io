@@ -3,9 +3,16 @@ title: "Garis Edar"
 subtitle: "Sebelum Orbit"
 layout: post
 author: "Shierolive"
+date: 2026-10-21
 header-style: text
 tags:
   - novel
+---
+
+> **Nama Pena:** Shierolive  
+> **Catatan:** Novel ini telah dipublikasikan secara lengkap di **Quarterfull Apps**. Silakan membaca kisah *Garis Edar* selengkapnya melalui tautan resmi berikut: [Baca Garis Edar di Quarterfull](https://quarterfull.io/novel/QZOpnelY3jVaKBzy?qf_ref=6nrKDAM-SUmoH_AaQlhemiSTzTYXGZvsUqGH0p8jVGYR6g).  
+> **Tanggal Upload:** 21 Oktober 2026  
+
 ---
 
 ### Prologue
@@ -482,4 +489,6 @@ Tanpa perlu diperintah dua kali oleh sisa kewarasannya yang telah menguap, kedua
 ---
 
 > ### **Catatan:**
-> **Baca Garis Edar selengkapnya di Quarterfull dengan judul Garis Edar karya Shierolive.**
+> **Baca Garis Edar selengkapnya di Quarterfull dengan judul Garis Edar karya Shierolive:**  
+> 👉 [https://quarterfull.io/novel/QZOpnelY3jVaKBzy?qf_ref=6nrKDAM-SUmoH_AaQlhemiSTzTYXGZvsUqGH0p8jVGYR6g](https://quarterfull.io/novel/QZOpnelY3jVaKBzy?qf_ref=6nrKDAM-SUmoH_AaQlhemiSTzTYXGZvsUqGH0p8jVGYR6g)
+
