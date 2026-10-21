@@ -40,3 +40,4 @@ Dunia nyata sering kali tidak menyediakan tempat bagi dinamika seperti itu. Teta
 ---
 
 Pada akhirnya, menulis adalah tindakan keberanian yang paling sunyi. Kita membuka dada, memperlihatkan retakan-retakan di dalamnya, dan membiarkan dunia melihat bahwa kita pernah hidup, pernah terluka, dan tetap memilih untuk mencintai.
+
