@@ -179,3 +179,4 @@ Pada akhirnya, kehebatan seorang perempuan tidak diukur oleh pandangan manusia, 
 ---
 
 *Artikel ini juga dipublikasikan oleh penulis di [Medium @svickymellinda](https://medium.com/@svickymellinda).*
+
