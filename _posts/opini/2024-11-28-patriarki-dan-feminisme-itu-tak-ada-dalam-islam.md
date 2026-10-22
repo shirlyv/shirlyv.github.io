@@ -1,6 +1,6 @@
 ---
-title: "Melampaui Patriarki dan Feminisme"
-subtitle: "Keadilan Hakiki dan Harmoni Fitrah dalam Timbangan Islam"
+title: "Patriarki dan Feminisme Itu Tak Ada dalam Islam"
+subtitle: "Menemukan Keadilan Hakiki dan Keseimbangan Fitrah Melampaui Polarisasi Gender Modern"
 layout: post
 author: "Linda Shierly"
 date: 2024-11-28
@@ -99,12 +99,12 @@ Namun, kepemimpinan ini tidak berarti dominasi, melainkan tanggung jawab yang be
 
 #### Islam Menentang Patriarki yang Menindas Perempuan
 
-Islam sangat menentang praktik patriarki yang menindas dan merendahkan perempuan. Pada masa Jahiliyah, perempuan dipandang rendah, hingga praktik mengubur bayi perempuan hidup-hidup menjadi hal biasa:
+Islam sangat menentang praktik patriarki yang menindas dan merendahkan perempuan. Pada masa Jahiliyah, perempuan dipandang rendah, hingga praktik mengubur bayi perempuan hidup-hidup menjadi hal biasa.
 
 > “Dan ketika bayi-bayi perempuan yang dikubur hidup-hidup ditanya, ‘atas dosa apa dia dibunuh?’”  
 > **(QS. At-Takwir: 8–9)**
 
-Rasulullah SAW tidak hanya menghentikan tradisi ini, tetapi juga mengajarkan umatnya untuk memuliakan perempuan dalam setiap aspek kehidupan. Beliau bersabda:
+Rasulullah SAW tidak hanya menghentikan tradisi ini, tetapi juga mengajarkan umatnya untuk memuliakan perempuan dalam setiap aspek kehidupan. Rasulullah SAW bersabda:
 
 > “Barang siapa yang memiliki tiga anak perempuan lalu mendidik mereka, menyayangi mereka, dan menikahkan mereka, maka baginya surga.”  
 > **(HR. Abu Dawud)**
@@ -261,7 +261,3 @@ Solusi terbaik bagi masalah gender tidak terletak pada adopsi ideologi asing, me
 Hanya dengan kembali kepada ajaran Islam, umat manusia dapat membangun kehidupan yang damai, bermartabat, dan sesuai dengan tujuan penciptaan. Dalam sistem Islam, tidak ada ruang untuk penindasan atau ketidakadilan, karena segala sesuatu ditata dengan penuh kebijaksanaan. Ini adalah jalan yang tidak hanya membawa kita kepada ketenangan dunia, tetapi juga keselamatan di akhirat.
 
 Maka, mari kita bangga dan teguh menjalani kehidupan sesuai dengan syariat. Jadikan Al-Qur’an dan sunnah sebagai panduan utama, karena di dalamnya terdapat solusi hakiki untuk setiap tantangan zaman, termasuk masalah gender. Islam adalah rahmat untuk semesta alam, yang mengajarkan keadilan tanpa memihak, keseimbangan tanpa kekacauan, dan kebahagiaan tanpa batas waktu.
-
----
-
-*Artikel dan pemikiran ini juga dapat Anda temukan melalui portal edukasi dan literasi kami di [**Artima Edu** (artimaedu.web.id)](https://artimaedu.web.id).*
