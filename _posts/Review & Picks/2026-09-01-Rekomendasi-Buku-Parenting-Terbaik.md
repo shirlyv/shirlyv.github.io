@@ -7,8 +7,6 @@ date: 2026-09-01
 header-style: text
 tags:
   - reviews-picks
-  - parenting
-  - books
 ---
 
 Memilih buku panduan pengasuhan anak (*parenting*) di tengah banjirnya informasi digital sering kali terasa membingungkan. Banyak buku menjanjikan "formula ajaib" agar anak selalu patuh tanpa tangisan, padahal pengasuhan sejati bukanlah tentang mengendalikan anak, melainkan tentang memahami cara kerja otak mereka, meregulasi emosi kita sendiri sebagai orang dewasa, dan membangun koneksi jangka panjang.
