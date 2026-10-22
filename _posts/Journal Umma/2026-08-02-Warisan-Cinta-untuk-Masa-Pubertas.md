@@ -156,3 +156,4 @@ Menjadi orang tua memang berarti bersedia hidup dengan hati yang berjalan di lua
 Mengenalkan nama anatomis tubuh dengan jujur sejak balita, menegakkan batasan privasi dan aurat di dalam rumah tanpa kompromi sejak dini, hingga menyiapkan perbekalan literasi dan surat-surat cinta untuk masa akil baligh mereka di masa depan adalah cara kami menerjemahkan rasa cinta menjadi tindakan nyata.
 
 Semoga catatan perjalanan dan ikhtiar sederhana dari keluarga kecil kami ini dapat memberi manfaat, membuka sudut pandang baru, dan menjadi inspirasi yang bisa diamati, ditiru, serta dimodifikasi sesuai nilai keluarga masing-masing. Karena pada akhirnya, warisan terbaik yang bisa ditinggalkan oleh orang tua bukanlah semata-mata harta benda, melainkan bekal ilmu, batasan kehormatan diri, dan kepastian bahwa dalam setiap fase pertumbuhan hidupnya, seorang anak tidak pernah benar-benar berjalan sendirian.
+
