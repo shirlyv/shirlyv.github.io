@@ -34,3 +34,4 @@ Kulepaskan genggaman di ujung perpisahan,<br>
 Membawa pedih dan sisa kenangan.<br>
 Meski takdir melarang kita berjalan seirama,<br>
 Cinta ini abadi, meski terhalang garis sesama.<br>
+
