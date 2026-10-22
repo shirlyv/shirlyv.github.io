@@ -110,3 +110,4 @@ Ledakan itu menelan kami semua. Yang tersisa hanyalah sesal Bapak, yang entah se
 ---
 
 *ditulis oleh Linda Shierly berusia tujuh belas tahun.*
+
