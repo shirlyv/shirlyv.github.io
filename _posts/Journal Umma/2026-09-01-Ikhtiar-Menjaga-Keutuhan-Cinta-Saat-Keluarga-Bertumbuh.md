@@ -6,7 +6,6 @@ author: "Linda Shierly"
 date: 2026-09-01
 header-style: text
 tags:
-  - parenting
   - journal-umma
 ---
 
