@@ -82,3 +82,4 @@ Hari ketujuh sejak kepergiannya, aku dan Dicky berjalan meninggalkan makam Lily.
 Aku menangis lagi. Dicky menarik kepalaku ke dalam dekapannya.
 
 *Maafkan aku, Lily. Maaf karena cinta pertamamu kini menjadi suamiku.*
+
