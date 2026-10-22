@@ -228,3 +228,4 @@ Tugas terbesar kita dalam hidup ini—sebagai seorang individu, sebagai seorang 
 Di samudra yang luas itu, kita akan menyadari dengan penuh kelegaan bahwa setiap manusia memiliki garis edarnya masing-masing. Matahari tidak pernah merasa tersaingi oleh bersinarnya bulan, dan mekarnya bunga mawar di halaman tetangga tidak pernah menghalangi pohon melati di halaman rumah kita untuk ikut mekar dan menebarkan harumnya sendiri.
 
 Mari kita berhenti menggunakan tangan kita untuk menarik jatuh mereka yang sedang berjuang memanjat ke atas. Sebaliknya, mari kita ulurkan tangan kita untuk saling menopang, saling mendoakan dalam hening, dan saling membukakan jalan. Karena kemuliaan sejati seorang manusia tidak pernah diukur dari berapa banyak orang yang berhasil ia tahan di bawah kakinya, melainkan dari berapa banyak jiwa yang ikut terangkat naik karena kehadirannya di dunia ini.
+
