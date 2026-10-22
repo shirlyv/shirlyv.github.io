@@ -128,3 +128,4 @@ Akan tetapi, ada perbedaan yang sangat besar antara perempuan yang memasuki pern
 Menyiapkan diri sebelum menjadi istri dan ibu bukanlah tentang menuntut kesempurnaan dari diri sendiri. Ini adalah tentang menghormati masa depan kita sendiri dan masa depan anak-anak yang kelak akan lahir dari rahim kita. Ketika seorang perempuan telah selesai dengan luka dirinya sendiri, berani menolak ilusi standar media sosial, memiliki standar nilai yang kokoh, serta berkomitmen untuk menjadi pribadi yang cerdas, berkarakter, dan mau terus bertumbuh—maka ia tidak hanya sedang membangun sebuah rumah. Ia sedang membangun sebuah peradaban kecil yang penuh cinta, ilmu, dan keberkahan, tepat dari ruang keluarganya sendiri.
 
 Semoga setiap ikhtiar kita dalam membaca satu halaman buku hari ini, merapikan luka batin kemarin, dan meluruskan niat karena Allah, menjadi bekal terbaik bagi perjalanan panjang kita sebagai perempuan yang utuh dan berdaya.
+
