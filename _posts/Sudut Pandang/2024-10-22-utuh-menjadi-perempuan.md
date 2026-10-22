@@ -6,7 +6,7 @@ author: "Linda Shierly"
 date: 2024-10-22
 header-style: text
 tags:
-  - opini
+  - sudut-pandang
 ---
 
 Perempuan adalah salah satu ciptaan Allah yang paling istimewa, anugerah yang dipenuhi dengan kemuliaan dan tanggung jawab yang unik. Dalam Islam, perempuan mendapatkan posisi yang tinggi, tidak hanya sebagai pelengkap tetapi sebagai tonggak kehidupan dan peradaban. Kehormatan yang diberikan kepada perempuan tercermin dalam berbagai aspek, mulai dari hak-hak yang diakui secara eksplisit dalam syariat hingga peran penting mereka dalam membentuk keluarga, masyarakat, dan generasi mendatang.

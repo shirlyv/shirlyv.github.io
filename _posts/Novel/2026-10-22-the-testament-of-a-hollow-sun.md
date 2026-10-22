@@ -218,3 +218,4 @@ Claus rode out upon the fourth day of Emberfall, at the first bell of dawn, befo
 > ### **Bersambung**
 > 
 > *The Testament of a Hollow Sun* karya **Shierolive** akan segera rilis di aplikasi **Quarterfull** pada bulan **November 2026**.
+

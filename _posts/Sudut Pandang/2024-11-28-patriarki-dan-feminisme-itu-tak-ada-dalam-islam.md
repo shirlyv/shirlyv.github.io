@@ -6,7 +6,7 @@ author: "Linda Shierly"
 date: 2024-11-28
 header-style: text
 tags:
-  - opini
+  - sudut-pandang
 ---
 
 ### Pendahuluan

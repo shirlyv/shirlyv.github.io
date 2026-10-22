@@ -4,7 +4,7 @@ layout: post
 author: "Linda Shierly"
 header-style: text
 tags:
-  - puisi
+  - larik-puisi
 ---
 
 Jujurlah padaku,<br>

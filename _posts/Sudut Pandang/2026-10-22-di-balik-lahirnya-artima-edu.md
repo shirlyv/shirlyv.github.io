@@ -6,7 +6,7 @@ author: "Linda Shierly"
 date: 2026-10-22
 header-style: text
 tags:
-  - opini
+  - sudut-pandang
 ---
 
 Ketika seseorang bertanya kepadaku, "Shierly, kenapa kamu membangun Artima Edu?", pikiranku tidak pernah langsung melompat pada angka-angka bisnis, grafik pertumbuhan pengguna, atau tren industri teknologi pendidikan (edutech) yang sedang naik daun. Sebaliknya, ingatanku selalu kembali pada suasana hening di ruang tengah rumah kami di Cipanas, pada tumpukan buku cerita anak yang berserakan di karpet, pada coretan krayon di kertas gambar, dan pada tatapan mata kedua buah hatiku, Kakak Ar serta adiknya, Atya.

@@ -5,7 +5,7 @@ layout: post
 author: "Linda Shierly"
 header-style: text
 tags:
-  - puisi
+  - larik-puisi
 ---
 
 Tak ada hujan turun yang mampu melegakan kemarau-ku,<br>

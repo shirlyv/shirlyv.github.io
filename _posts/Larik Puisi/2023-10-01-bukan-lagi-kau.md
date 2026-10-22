@@ -5,7 +5,7 @@ layout: post
 author: "Linda Shierly"
 header-style: text
 tags:
-  - puisi
+  - larik-puisi
 ---
 
 Aku tidak senang melihat luka yang belum tertutup sempurna kembali menganga, kemudian perihnya menyeruak sampai ke relung jiwa.<br>

@@ -6,7 +6,7 @@ author: "Linda Shierly"
 date: 2024-11-29
 header-style: text
 tags:
-  - opini
+  - sudut-pandang
 ---
 
 ### Cinta dalam Pengertian Agama dan Pandangan Modern

@@ -6,7 +6,7 @@ author: "Linda Shierly"
 date: 2026-10-22
 header-style: text
 tags:
-  - opini
+  - sudut-pandang
 ---
 
 Ada masa di mana kita merasa segala hal di dunia ini bergerak terlalu cepat, terlalu berisik, dan menuntut respons seketika. Setiap orang berlomba mengunggah pencapaian, menelurkan opini instan atas apa pun yang sedang tren, dan menuntut pengakuan dari layar kaca yang berpendar tanpa henti. Di tengah arus deras itu, sering kali kita bertanya pada diri sendiri: *untuk apa kita masih menulis cerita, merangkai puisi, atau meratapi kenangan yang bahkan tak seorang pun minta untuk dibaca?*

@@ -6,7 +6,7 @@ author: "Linda Shierly"
 date: 2024-11-30
 header-style: text
 tags:
-  - opini
+  - sudut-pandang
 ---
 
 Dalam Islam, istri memiliki kedudukan yang mulia dan peran yang tak tergantikan sebagai pilar kekuatan dalam membangun keluarga yang harmonis. Istri bukan sekadar pasangan hidup, tetapi penjaga cinta, penguat dalam duka, dan sumber inspirasi yang tak pernah surut bagi suami serta anak-anaknya. Perannya melampaui tugas-tugas domestik; ia adalah teman sejati yang mendampingi perjalanan hidup, pengasuh yang penuh kasih, dan pendidik yang menjadi fondasi generasi masa depan.

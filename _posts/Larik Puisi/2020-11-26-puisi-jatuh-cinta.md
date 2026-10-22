@@ -5,7 +5,7 @@ layout: post
 author: "Linda Shierly"
 header-style: text
 tags:
-  - puisi
+  - larik-puisi
 ---
 
 kau adalah terang di antara gelap-gelapnya malam<br>
