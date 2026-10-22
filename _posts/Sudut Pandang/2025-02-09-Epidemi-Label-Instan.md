@@ -92,3 +92,4 @@ Meskipun berfokus pada pengasuhan, buku karya psikolog klinis Dr. Becky Kennedy 
 Kesehatan mental adalah hal yang sangat mulia dan serius untuk dirawat. Ia layak mendapatkan perhatian profesional yang sesungguhnya, bukan sekadar dijadikan konten selingan di antara video-video hiburan media sosial.
 
 Mari kita berani melepaskan diri dari ketergantungan pada label-label instan yang bertebaran di linimasa. Jika kita merasa hari-hari kita berat, carilah pertolongan yang tepat kepada ahlinya—psikolog atau psikiater klinis—bukan kepada "dokter internet" yang bersembunyi di balik layar ponsel. Dan jika yang kita butuhkan hanyalah sedikit ketenangan, mulailah dari hal-hal yang sederhana: matikan gawai, hirup udara segar di luar rumah, rapikan kamar, peluk orang terkasih, dan kembalikan kedamaian jiwa kepada Sang Maha Penyembuh.
+
